@@ -5,7 +5,7 @@
 **_Логотипы_**
 -[Cloud](https://cloud.mail.ru/public/MgiC/unT8ErNAS)
 
-**_Логотипы_**
+**_Баннеры_**
 -[Баннеры](https://cloud.mail.ru/public/6JqX/NCbRvQS1j) </br>
 
 **_UX design_**
